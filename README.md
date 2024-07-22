@@ -4,6 +4,7 @@
 
 ### ijinrf
 
+![raw vs jpeg]([image.jpg](https://www.bing.com/images/blob?bcid=qNJPCTrXAksHKaT1sN8OAHM1q473.....84))
 
 *Ich habe vergessen, was in mein erstes Rpo soll, also schreibe ich einfach Unfug* 
 *kursiv_mit*_*
